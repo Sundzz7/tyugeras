@@ -9,6 +9,3 @@ Meu nickname é Sun
 - Você entra em contanto comigo
 
 - juan.buarque@escola.pr.gov.br
-
-!.[_].(![image](![Uploading image.png…]()
-)

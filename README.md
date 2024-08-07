@@ -12,4 +12,4 @@ juan.buarque@escola.pr.gov.br
 
 @SUndzz7
 
- ![](https://media1.tenor.com/m/YfMVPykT0koAAAAC/lmario.gif)
+ ![](https://media1.tenor.com/m/muLqLs7VDaQAAAAC/gojo-satoru.gif)

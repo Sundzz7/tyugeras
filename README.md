@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil ![](https://i.pinimg.com/564x/b1/b3/a8/b1b3a8e7130644042c477a73bcde2309.jpg)
+### Boas vindas ao meu perfil
 
 Meu nicname é Sun
 
@@ -12,4 +12,5 @@ juan.buarque@escola.pr.gov.br
 
 @SUndzz7
 
- ![](https://media1.tenor.com/m/muLqLs7VDaQAAAAC/gojo-satoru.gif)
+ ![](https://media1.tenor.com/m/muLqLs7VDaQAAAAC/gojo-satoru.gif)  ![](https://media1.tenor.com/m/6nO7jWQY4k0AAAAC/mao-nonosaka-future-diary.gif)
+ 

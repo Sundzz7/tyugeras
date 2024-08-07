@@ -12,4 +12,4 @@ juan.buarque@escola.pr.gov.br
 
 @SUndzz7
 
- ![](https://media.tenor.com/Smph2uXkObIAAAAi/yor-forger-dance.gif)
+ ![](https://media1.tenor.com/m/RQSbVlQ1ja4AAAAd/suki-daisuki.gif)

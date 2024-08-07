@@ -12,4 +12,4 @@ juan.buarque@escola.pr.gov.br
 
 @SUndzz7
 
- ![](https://media1.tenor.com/m/wDXgK1ed38oAAAAC/hakos-baelz-bae.gif)
+ ![](https://media.tenor.com/n6vSm3XlyLMAAAAi/yes-yes-anime.gif)

@@ -6,7 +6,7 @@ Meu nicname é Sun
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo 😈εつ▄█▀█🥵
+### Você pode entrar em contato comigo ✝️
 
 juan.buarque@escola.pr.gov.br
 

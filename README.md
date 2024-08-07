@@ -9,3 +9,5 @@ Meu nickname é Sun
 - Você entra em contato comigo
 
 - juan.buarque@escola.pr.gov.br
+
+!.[_].(https://media.tenor.com/KtxM1oKoKxcAAAAi/vtuber-chainavt.gif)

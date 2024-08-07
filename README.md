@@ -1,4 +1,4 @@
-### Boas vindas ao meu perfil
+### Boas vindas ao meu perfil ⛩
 
 Meu nicname é Sun
 
@@ -6,7 +6,7 @@ Meu nicname é Sun
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-### Você pode entrar em contato comigo :mailbox
+### Você pode entrar em contato comigo 😈εつ▄█▀█🥵
 
 juan.buarque@escola.pr.gov.br
 

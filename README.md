@@ -1,13 +1,15 @@
-### boas vindas ao meu perfil
+### Boas vindas ao meu perfil :blue_heart
 
-Meu nickname é Sun
+Meu nicname é Sun
 
-- Estou estudando no alura
-- Estou me desenvolvendo na linguagem javascript
-- Utilizo esse espaço para a organiação e compartilhamento do meus projetos desenvovidos
+- Estou estudando na [Alura](https://www.alura.com.br)
+- Estou me desenvolvendo na linguagem JavaScript
+- Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
-- Você entra em contato comigo
+### Você pode entrar em contato comigo :mailbox
 
-- juan.buarque@escola.pr.gov.br
+juan.buarque@escola.pr.gov.br
 
-!.[_].(https://media.tenor.com/KtxM1oKoKxcAAAAi/vtuber-chainavt.gif)
+@SUndzz7
+
+!.[_].(https://media1.tenor.com/m/wDXgK1ed38oAAAAC/hakos-baelz-bae.gif)

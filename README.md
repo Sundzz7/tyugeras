@@ -10,4 +10,5 @@ Meu nickname é Sun
 
 - juan.buarque@escola.pr.gov.br
 
-!.[_].(https://tenor.com/h8h8dSKWTGi.gif)
+!.[_].(![image](https://github.com/user-attachments/assets/2e1bed1d-4339-42ec-a883-da5c4cc5f81c)
+)

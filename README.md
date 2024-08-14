@@ -14,4 +14,3 @@ juan.buarque@escola.pr.gov.br
 
  ![](https://media1.tenor.com/m/muLqLs7VDaQAAAAC/gojo-satoru.gif)
  
-![](https://media1.tenor.com/m/6nO7jWQY4k0AAAAC/mao-nonosaka-future-diary.gif)
